@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CookieNattor777
-- 👀 I’m interested in IT for the moment and withcraft.
-- 🌱 I’m currently learning basics of programming.
+- 👀 I’m interested in IT for the moment and witchcraft.
+- 🌱 I’m currently learning basics of programming languages.
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have two cute guinea pigs! 
 
